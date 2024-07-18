@@ -45,6 +45,6 @@ This project is licensed under the MIT License.
 
 If you have any questions or would like to learn more about our services, please don't hesitate to contact us at:
 
-- **Email:** [glitsh404@outlook.com](mailto:glitsh404@outlook.com)
+- **Email:** [glitsh404@yahoo.com](mailto:glitsh404@outlook.com)
 - **Phone:** [+20 111 219 6172](https://wa.me/+201112196172)
 - **Our Website:** [www.glitsh.art](https://www.glitsh.art/)
